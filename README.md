@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mpaertteirn
 - 👀 I’m interested in Energy and Sustainable Development Policy
-- 🌱 I’m currently learning Economics and Politcal Science
+- 🌱 I’m currently learning Economics and Politcs & Philosophy
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me via peter.xg.martin@gmail.com
 
